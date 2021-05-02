@@ -8,4 +8,3 @@
 - 📫 How to reach me: ... vinaynathan99@gmail.com
 - 😄 Pronouns: ... He/Him
 - ⚡ Fun fact: ... 1 dog yr = 15 human yrs, at one point, your dog is older than you are.
--->
